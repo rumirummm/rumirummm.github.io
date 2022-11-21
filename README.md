@@ -1,5 +1,5 @@
 
-## About me:
+## **About me:**
 - I'm 14 as of writing this(Nov 21, 2022)
 - My pronouns are He/Him
 - I very like rhythm games especially games like osu!

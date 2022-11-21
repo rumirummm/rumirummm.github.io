@@ -2,8 +2,16 @@
 ## **About me:**
 - I'm 14 as of writing this(Nov 21, 2022)
 - My pronouns are He/Him
-- I very like rhythm games especially games like osu!
-- I can also play some instruments; guitar, piano and bass
+- I like playing rhythm games
+- I can also play some instruments like guitar and still learning some more like the piano and bass
+- I love music
+
+
+## **Music:**
+
+- [**My Spotify Playlist**](https://open.spotify.com/playlist/5Omw8TFcHJktGPEzKYiZjG?si=a414b88779ce4bf6)
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/5Omw8TFcHJktGPEzKYiZjG?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
 
 ## **Games:**
 
@@ -15,7 +23,7 @@ osu! is a free-to-play rhythm game primarily developed, published, and created b
 
 ![my profile](https://cdn.discordapp.com/attachments/876015914179522591/1044241336947195914/image.png)
 
-In [My profile](https://osu.ppy.sh/users/19673628), you can see there my playtime which is 23days or 550hours. I know its a lot but its pretty much the only game I play since my laptop can't run other games, even roblox.
+In [My profile](https://osu.ppy.sh/users/19673628), you can see there my playtime which is 23days or 550hours. I know its a lot but its pretty much the only game I play since my laptop can't run other games. L
 
 ##  Some of my plays
 

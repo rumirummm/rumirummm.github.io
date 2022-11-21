@@ -21,7 +21,6 @@
 - [My Juliana - IVOS](https://www.youtube.com/watch?v=pc1xoZZGOxA&ab_channel=IVOFSPADES)
 - [Kyusi - Zild](https://www.youtube.com/watch?v=VICI21S3HrU&ab_channel=Zild)
 
-(
 
 ## **Games:**
 
